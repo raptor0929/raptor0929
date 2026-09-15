@@ -40,7 +40,7 @@ I'm **Fabio** – a **full-stack builder** and **agentic engineer** with 10+ yea
 
 ## 📫 Get in Touch
 
-**Email**: [contact@tobilay.dev](mailto:contact@tobilay.dev) · **Website**: [tobilay.dev](https://tobilay.dev) · **GitHub**: You're already here!
+**Email**: [flaura.dev@gmail.com](mailto:flaura.dev@gmail.com) · **Website**: [tobilay.dev](https://tobilay.dev) · **GitHub**: You're already here!
 
 ---
 
